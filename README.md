@@ -1,2 +1,2 @@
-# ARTisSCIENCEmadeCLEAR.github.io
-Site of ARTisSCIENCEmadeCLEAR
+# ART is SCIENCE made clear
+Site of ART is SCIENCE made clear under construcction...
